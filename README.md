@@ -1,1 +1,2 @@
-# Born to be a freedom ```notabug.org/loliconshik3```
+# Born to be free 
+```notabug.org/loliconshik3```
